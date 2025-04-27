@@ -1,0 +1,1 @@
+No scan results available 😔.
